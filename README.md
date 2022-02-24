@@ -1,1 +1,1 @@
-# training
+# Nina Skuratova
